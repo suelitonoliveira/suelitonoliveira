@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **suelitondeoliveira@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1WdFyW-dsyc-KfJ4zcR6d4xSJsk4XBoHe/view?usp=sharing](https://drive.google.com/file/d/1WdFyW-dsyc-KfJ4zcR6d4xSJsk4XBoHe/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1WdFyW-dsyc-KfJ4zcR6d4xSJsk4XBoHe/view?usp=sharing](https://drive.google.com/file/d/1h-IhXPcuMh-AY0y5zXKw05x9Mv1ELZHT/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
